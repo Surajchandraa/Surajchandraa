@@ -9,6 +9,8 @@
 
 - 📫 How to reach me **surajjosh7@gmail.com**
 
+-  focusing
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
