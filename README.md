@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **surajjosh7@gmail.com**
 
--  Focusing
+- Here is my resume <a href="https://drive.google.com/file/d/1Etc4ZEFkwZt2ptFunOTa9SHjmY1-SN4q/view?usp=sharing"> link </a>
 
 
 
