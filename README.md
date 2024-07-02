@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **surajjosh7@gmail.com**
 
-- Here is my resume <a href="https://drive.google.com/file/d/1Etc4ZEFkwZt2ptFunOTa9SHjmY1-SN4q/view?usp=sharing"> link </a>
+- Here is my resume <a href="https://drive.google.com/file/d/1qG7spYbWyKvd2595VcSKbFv4uSbGxg3-/view"> Resume </a>
 
 
 
